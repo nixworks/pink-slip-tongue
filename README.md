@@ -1,1 +1,1 @@
-# pink slip tongue 💬
+# pink slip tongue
